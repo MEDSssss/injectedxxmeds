@@ -11,7 +11,7 @@ male , selective mutism , fictkin , may 11th , pup reg
 
 ***dni list***
 *zoos , neos , pro shipers*
-*hetalia main fandom , under 13*
+*hetalia main fandom , under 13*,
 *self diagnoser , rcta*
 
 ‿̩͙⊱༒︎༻ ༺༒︎⊰‿̩͙
