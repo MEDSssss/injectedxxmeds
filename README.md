@@ -2,7 +2,6 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-![image](https://github.com/user-attachments/assets/6c604cc0-fac5-4da1-bae3-e5615a10ddcb)
 
 
 he / it / pup
